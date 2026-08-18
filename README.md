@@ -7,6 +7,7 @@
 ***About me! ^^:***
 
 Hii, im Ribbit / Phinn bodily 18 
+we are VERYY socially awkward so responding is difficult sometimes
 Our hosts are unknown at the moment
 -If youre looking to chat don't sit there and stare, talk to us, we will not know youre wanting to speak to us. This is a game full of random people, we dont want to bother people who may not be looking to chat with us.
 - I am a DID system, be patient with us please.
