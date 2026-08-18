@@ -7,10 +7,9 @@
 ***About me! ^^:***
 
 Hii, im Ribbit / Phinn bodily 18 
-Our hosts are Tord, Jay, and Valentino.
+Our hosts are unknown at the moment
 -If youre looking to chat don't sit there and stare, talk to us, we will not know youre wanting to speak to us. This is a game full of random people, we dont want to bother people who may not be looking to chat with us.
 - I am a DID system, be patient with us please.
-- DNI IF YOU ARE IF YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
 - Beware that my mood and typing changes at times and I tend to be dry from time to time, please tell me if tone tags are needed.
 - ***DO NOT*** hate on my interests in front of me, if you don't like it that's fine; but i will be upset.
 - c+h freely but if im sitting with my friends please do not do this.
@@ -32,6 +31,7 @@ Our hosts are Tord, Jay, and Valentino.
  - FNaF
  - Forsaken
  - TADC
+ - UNDERTALE AND AUS!!!
  - Fashion Designing
  - Drawing
  - Rupaul's Drag Race
@@ -44,6 +44,7 @@ Our hosts are Tord, Jay, and Valentino.
 - ANGEL : UGH OUR BELOVED BEST FRIEND WWE LOVELOVELOVE YOU
 - Sapphire / Chishiya; this is literally like my best friend like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
+- AZZY / NICO ; AAAAA HIHIHI ILYSM UR MY FAVR
 ![](https://i.postimg.cc/tRmyQ1LM/IMG-4476.png)
 
 ***BYI!:***
@@ -71,6 +72,7 @@ Our hosts are Tord, Jay, and Valentino.
 - ALFREDS PLAYHOUSE DNI.
 - Smiling friends (THIS ONLY GOES TO ME, not headmates)
 - FAKECLAIMERS BIG BIG DNI.
+- ENDOS DNI
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA, i am not ur therapist.
